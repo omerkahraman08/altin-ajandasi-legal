@@ -1,1 +1,0 @@
-# altin-ajandasi-legal
