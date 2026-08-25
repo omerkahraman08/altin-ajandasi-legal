@@ -1,1 +1,1 @@
-https://github.com/omerkahraman08/omerkahraman08.github.io/blob/main/app-ads.txt
+google.com, pub-8480665818456300, DIRECT, f08c47fec0942fa0
